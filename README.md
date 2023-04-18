@@ -1,2 +1,2 @@
 # test2
-"denemelre için
+"denemeer için
